@@ -1,4 +1,4 @@
-# 
+# best Adobe Photoshop for macOS Plugin | custom brushes + content-aware fill is the best Adobe Photoshop for macOS plugin, featuring custom brushes and content-aware fill. Safe,
 
 
 
